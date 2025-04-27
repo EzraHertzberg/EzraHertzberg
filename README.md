@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+##I am an insanely talented juggler, or maybe I just put a lot of time into it... I can juggle 7 balls!
+##When I'm not working on learning more coding, I like reading smart books and having fun
+##I will be a college freshman this fall!
+##Physics, Computer Sci, and Biomedical Engineering are all fields I'm considering majoring in......
+##I always think it's cool when someone who you wouldn't expect to code codes
+##Some people call me the Badminton Bandit
+##I draw good and I type fast!
