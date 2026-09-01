@@ -1,3 +1,3 @@
-First year at the University of Vermont studying computer science
+Student at the University of Vermont studying computer science
 
 
