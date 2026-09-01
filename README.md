@@ -1,3 +1,3 @@
-Student at the University of Vermont studying computer science
+2nd year at University of Vermont studying computer science
 
 
